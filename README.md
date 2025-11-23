@@ -1,2 +1,4 @@
+By proceeding, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
 # Southern-Star-Pro.-Studios-Integrated-Innovation-Vault-and-Strategic-Containment-Record
 A strategic expansion plan integrating digital services, artisan support, and IP-backed innovation. The initiative includes virtual events, a centralized digital marketplace, and a brick-and-mortar education hub designed to reduce marketing costs and empower small businesses.
